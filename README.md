@@ -1,1 +1,1 @@
-# githubbadges! vimp
+# githubbadges! vi
